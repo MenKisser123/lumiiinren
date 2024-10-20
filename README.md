@@ -1,3 +1,2 @@
-![Başlıksız459_20241017172651](https://github.com/user-attachments/assets/28d956a1-e9fd-40df-bcdc-556c3e7a98bf)
+![af155513647cd3765ceddac202465d58](https://github.com/user-attachments/assets/8677b214-916f-4680-ab7c-a52116151c5f)
 
-  kkkkangle 
